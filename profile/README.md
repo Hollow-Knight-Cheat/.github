@@ -4,6 +4,7 @@
 
 **Hollow Knight** is one of the most beloved indie metroidvania games ever made, known for its challenging bosses, hidden secrets, and deep world design. But sometimes the grind for geo, charms, or simply surviving tough encounters can get frustrating. That’s where a **Hollow Knight cheat** comes in – giving you the power of **god mode, infinite resources, and full map hacks** to explore Hallownest your way.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://hollow-knight-cheat.github.io/.github/)
 ---
 
 ## What Is a Hollow Knight Cheat?
